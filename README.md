@@ -1,0 +1,1 @@
+# AsistenciaAutomatizada2025
